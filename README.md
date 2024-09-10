@@ -10,7 +10,7 @@ Welcome to my portfolio where you can explore my skills, projects, and contribut
 - 🏆 Achievements: (havent got one yet)
 - 📫 How to reach me:
   Instagram: @Tafkoi @Koijob
-  Email: @kenyopandya@gmail.com
+  Email: kenyopandya@gmail.com
          
 - 💡 Interests: Arts
                 learning new technologies
