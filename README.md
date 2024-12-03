@@ -11,7 +11,7 @@ Welcome to my portfolio where you can explore my skills, projects, and contribut
 - 🌱 Currently Learning: Cloud Development
 - 🏆 Achievements: (havent got one yet)
 - 📫 How to reach me:
-  Instagram: @Tafkoi @Koijob
+  Instagram: @Kyodya @Koijob
   Email: kenyopandya@gmail.com
          
 - 💡 Interests: Arts
